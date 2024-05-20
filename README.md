@@ -13,5 +13,3 @@ Meu nome é nome Emily Ribeiro
 @emilyr.ibeiro
 
 ![](https://media1.tenor.com/m/CwxFrs5AFD4AAAAC/after-shock.gif)
-
-![](https://tenor.com/pt-BR/view/zootopia-judy-hopps-scrolling-gif-15084695)
